@@ -1,1 +1,1 @@
-# allahyok123.io
+# allahinisikeyim.io
